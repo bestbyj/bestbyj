@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ai tool developement and trainning
 - 📫 How to reach me ...bestbyj@gmail.com
 - 😄 Pronouns: ...He
-- ⚡ Fun fact: ... PEACE is formal preparation for war. Protection first. Prayer is the Key
+- ⚡ Fun fact: ... PEACE is formal preparation for war. Protection first. Prayer is the Key. Jesus Christ is the way.
 
 <!---
 bestbyj/bestbyj is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
